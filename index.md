@@ -1,5 +1,5 @@
 ## Glacier
 
 ### Contact
-The best way to reach me at is through email:
+The best way to reach me is through email:
 diliunas.klaudius@gmail.com
